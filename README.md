@@ -1,3 +1,2 @@
 # hello-world
 lets go ppl
-i´m a advanced trading in a exchange house... and i get more money and i decided help us for minerating...
